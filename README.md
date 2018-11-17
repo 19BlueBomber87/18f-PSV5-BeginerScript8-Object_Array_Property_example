@@ -9,4 +9,4 @@ My FaceBook <@:)
 https://www.facebook.com/mark.kruse.1023
 
 My Word Press Site Has My scripts and links to my videos and Git-Hub <@:)
-mymicrosoft286094519.wordpress.com
+Https://www.mymicrosoft286094519.wordpress.com
